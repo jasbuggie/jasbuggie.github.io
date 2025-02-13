@@ -10,3 +10,6 @@ Pokémon means the world to me, so when I figured out how to download a Pokémon
 Despite all your shortcomings as a partner, you are a wonderful person. You're highly reactive but I appreciate your efforts when you take time for yourself to not get upset or angry. I am someone who has grown up with an emotionally stunted father, so to see you be so vulnerably and transparent with me about your feelings is refreshing. One of the main characteristics that drew me to you was your kindness towards me. Of course, you aren't kind to everyone but at least you displayed that with me due to your immense love for me, hehe. Although you were a liar when I met you, it was nice seeing how quickly your cold Deutscher heart warmed up to me. I loved seeing you come out of your shell and embrace your feelings and love for me. Getting to know you by making memories with you arguing, watching shows, planning our trip, and playing games has been rewarding. 
 
 ## Trip Through Memory Lane 
+
+I would say our friendship was less serious when we used Discord so when we transitioned onto Whatsapp, it was a breaking moment. It was special to even have your number. Then you sent:
+
