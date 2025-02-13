@@ -38,4 +38,5 @@ You began showing cute signs of liking me beyond our friendship which fed my obs
 
 ![minecraft](/assets/assets/IMG_7292.HEIC)
 
+$${\color{red}Red}$$ 
 
