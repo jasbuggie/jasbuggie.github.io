@@ -22,3 +22,7 @@ We've officially been friends since August 16,2024 so even though this initial W
 
 I wanted feel closer to you, so I began engaging in your interests. I only began watching Breaking Bad so I could have something to talk to you about. I mean our conversations were pretty natural, but I felt a lot of pressure since I had to keep your attention. At that time, you would only text me a couple times on Discord but moving to Whatsapp helped increase the frequency of your messages. It was so cute getting an occassional message of yours. I attribute our friendship growing to me watching Breaking Bad and gushing about Jesse Pinkman, haha. I took the opportunity to send you Jesse Pinkman memes as a conversational topic, since our memes were similar (I think). 
 
+### Gay Sammy Kätzchen
+![image alt]([https://github.com/jasbuggie/jasbuggie.github.io/blob/28b94d5f336740f46dc673b2860dde953994491b/Bug%20Repository/ed26178b-b9d8-46fc-80c4-a1903800a1c9.JPG)
+
+Another topic of conversation was Sammy and Layla Scheffler, my favorite Deutscher Katzen. 
