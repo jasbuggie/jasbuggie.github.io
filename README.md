@@ -17,7 +17,7 @@ I would say our friendship was less serious when we used Discord so when we tran
 
 We've officially been friends since August 16,2024 so even though this initial Whatsapp message was sent in October, I wanted you so much. I loved your voice, I loved your rudeness, I loved your bullying, I loved your moments that could be interpreted as flirting. I didn't think we could be anything more than friends so I was just fine with fostering our friendship.
 
-
+### Shared Interests
 ![image alt](https://github.com/jasbuggie/jasbuggie.github.io/blob/323082163302dee449c1a14b28d5c4339965a553/Bug%20Repository/IMG_9583.jpg)
 
 I wanted feel closer to you, so I began engaging in your interests. I only began watching Breaking Bad so I could have something to talk to you about. I mean our conversations were pretty natural, but I felt a lot of pressure since I had to keep your attention. At that time, you would only text me a couple times on Discord but moving to Whatsapp helped increase the frequency of your messages. It was so cute getting an occassional message of yours. I attribute our friendship growing to me watching Breaking Bad and gushing about Jesse Pinkman, haha. I took the opportunity to send you Jesse Pinkman memes as a conversational topic, since our memes were similar (I think). 
