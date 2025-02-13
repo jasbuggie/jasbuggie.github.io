@@ -14,3 +14,5 @@ Despite all your shortcomings as a partner, you are a wonderful person. You're h
 I would say our friendship was less serious when we used Discord so when we transitioned onto Whatsapp, it was a breaking moment. It was special to even have your number. Then you sent:
 
 ![image alt](https://github.com/jasbuggie/jasbuggie.github.io/blob/3b1badc7587ba7e857ebb12247100bad0f87082d/leoemoji1.jpg)
+
+We've officially been friends since August 16, so even though this initial Whatsapp message was sent in October, I wanted you so much. I loved your voice, I loved your rudeness, I loved your bullying, I loved your moments that could be interpreted as flirting. I didn't think we could be anything more than friends so I was just fine with fostering our friendship. 
