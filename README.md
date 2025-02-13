@@ -15,4 +15,8 @@ I would say our friendship was less serious when we used Discord so when we tran
 
 ![image alt](https://github.com/jasbuggie/jasbuggie.github.io/blob/3b1badc7587ba7e857ebb12247100bad0f87082d/leoemoji1.jpg)
 
-We've officially been friends since August 16,2024 so even though this initial Whatsapp message was sent in October, I wanted you so much. I loved your voice, I loved your rudeness, I loved your bullying, I loved your moments that could be interpreted as flirting. I didn't think we could be anything more than friends so I was just fine with fostering our friendship. 
+We've officially been friends since August 16,2024 so even though this initial Whatsapp message was sent in October, I wanted you so much. I loved your voice, I loved your rudeness, I loved your bullying, I loved your moments that could be interpreted as flirting. I didn't think we could be anything more than friends so I was just fine with fostering our friendship.
+
+
+![image alt] (https://github.com/jasbuggie/jasbuggie.github.io/blob/323082163302dee449c1a14b28d5c4339965a553/Bug%20Repository/IMG_9583.jpg)
+
