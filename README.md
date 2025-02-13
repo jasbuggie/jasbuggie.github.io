@@ -20,4 +20,5 @@ We've officially been friends since August 16,2024 so even though this initial W
 
 ![image alt](https://github.com/jasbuggie/jasbuggie.github.io/blob/323082163302dee449c1a14b28d5c4339965a553/Bug%20Repository/IMG_9583.jpg)
 
+I wanted feel closer to you, so I began engaging in your interests. I only began watching Breaking Bad so I could have something to talk to you about. I mean our conversations were pretty natural, but I felt a lot of pressure since I had to keep your attention. At that time, you would only text me a couple times on Discord but moving to Whatsapp helped increase the frequency of your messages. It was so cute getting an occassional message of yours. I attribute our friendship growing to me watching Breaking Bad and gushing about Jesse Pinkman, haha. 
 
