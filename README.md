@@ -33,3 +33,9 @@ Another topic of conversation was Sammy and Layla, my favorite Deutscher Katzen.
 ![image alt](https://github.com/jasbuggie/jasbuggie.github.io/blob/a2b3580033a81d0b3aa973cca69339df4868b4bc/Bug%20Repository/leoburger.JPG) 
 
 You began showing cute signs of liking me beyond our friendship which fed my obsession with you. It's funny because I didn't understand the burger meme you created, so I had to ask my friend to explain it for me. I know, I'm dumb. I guess I just couldn't fathom you making cute things like that for me. 
+
+### Childish Minecraft 
+
+![minecraft](/assets/assets/IMG_7292.HEIC)
+
+
