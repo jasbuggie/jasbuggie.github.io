@@ -26,3 +26,8 @@ I wanted to feel closer to you, so I began engaging in your interests. I only be
 ![image alt]([https://github.com/jasbuggie/jasbuggie.github.io/blob/28b94d5f336740f46dc673b2860dde953994491b/Bug%20Repository/ed26178b-b9d8-46fc-80c4-a1903800a1c9.JPG)
 
 Another topic of conversation was Sammy and Layla, my favorite Deutscher Katzen. Sammy is the cutest, chubby little orange angel. I correlate his presence to the healthy parts of our relationship, when lust and lack of resentment was at an all-time high. I'm not someone who enjoys seeing other people's pets, I prefer to help cure them. But seeing Sammy's huge eyes and rotund, obese body brought me such joy. Even though Sammy was unaware, he's been there since the beginning of our relationship. I know you feel the same way regarding Sammy considering you're overjoyed when you get to see him when you visit your older brother. I'm dreaming of the day I get to visit them and feed them my favorite cat slurpee tubes. I can't wait to interact with a foreign cat, especially Pumpkin's needy ass. 
+
+### Your Cutesy Romantic Hints 
+![image alt](https://github.com/jasbuggie/jasbuggie.github.io/blob/a2b3580033a81d0b3aa973cca69339df4868b4bc/Bug%20Repository/leoburger.JPG) 
+
+You began showing cute signs of liking me beyond our friendship which fed my obsession with you. It's funny because I didn't understand the burger meme you created, so I had to ask my friend to explain it for me. I know, I'm dumb. I guess I just couldn't fathom you making cute things like that for me. 
