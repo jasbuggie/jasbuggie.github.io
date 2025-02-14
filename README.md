@@ -36,7 +36,10 @@ You began showing cute signs of liking me beyond our friendship which fed my obs
 
 ### Childish Minecraft 
 
-![minecraft](/assets/assets/IMG_7292.HEIC)
+![minecraft](/assets/IMG_7292.HEIC)
 
 $${\color{red}Red}$$ 
+
+![stardew](/assets/image 2.PNG)
+
 
